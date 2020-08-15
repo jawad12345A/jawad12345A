@@ -10,4 +10,4 @@
 - 📫 How to reach me: jawadahmeddeveloper@gmail.com
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I spend almost 12 hours listening music 
--   Whatsapp/ Contact: +923129066276
+- ☎️ Whatsapp/ Contact: +923129066276
